@@ -1,1 +1,0 @@
-# autoduckmath9
